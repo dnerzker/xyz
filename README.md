@@ -1,6 +1,7 @@
 # a Latter to my self
 
-Dear Rizki Ardian
+## Dear Rizki Ardian
+
 ``Stop being so hard on your self. Everything will make the sense to you one day. Create a meaningfull life for yourself that you can  be proud of it.
 Promise me,
 Don't  let the word makes you hard, dont't let the pain make you hate, and don't let the bitterness steal your sweatness.
