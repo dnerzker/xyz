@@ -6,4 +6,4 @@
 ``Never let anyone get in the way of your goals in life.``
 ``more importantly, never give up on your passions and your dreams.``
 ``and dear,``
-``thankkkk uuu for never giving up, stay strong and being so tough. You know you deserve the world, and the universe loves you.``
+``thankkkk uuu for never giving up, stay strong and being so tough. You know you deserve the world, and the universe loves you./``
